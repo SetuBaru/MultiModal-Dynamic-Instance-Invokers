@@ -11,5 +11,4 @@
 
 **updated doc link***
 https://drive.google.com/drive/folders/1m-Vp2j2fDLnEtZzvnUvc2RbuaYAJPxjB?usp=sharing
-
 ##### Stay Tunned for Updates Coming Soon Inshallah!
