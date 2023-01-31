@@ -8,4 +8,8 @@
 #### Sample Results: https://drive.google.com/drive/folders/1s4OJFp0O0Zy2eWzBSZIWhE71A_AcMN8e?usp=sharing
 <br><br>
 
+
+**updated doc link***
+https://drive.google.com/drive/folders/1m-Vp2j2fDLnEtZzvnUvc2RbuaYAJPxjB?usp=sharing
+
 ##### Stay Tunned for Updates Coming Soon Inshallah!
